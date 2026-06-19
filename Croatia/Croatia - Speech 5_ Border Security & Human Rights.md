@@ -1,0 +1,6 @@
+Honorable Chair, Distinguished Delegates,  
+The delegation of Croatia wishes to address the third question of our study guide: how to balance strong border security with the protection of fundamental human rights.  
+For Croatia, this is a daily reality. As a nation that manages a critical external border of the European Union, we know that border security and human dignity are not opposites. In fact, they must go hand-in-hand. We cannot claim to protect human rights if we fail to manage our borders safely and humanely.  
+Therefore, Croatia proposes that NATO should assist frontline states by providing logistics and advanced monitoring technology. This support will help border authorities manage refugee flows in an orderly, transparent, and safe manner.  
+While we must remain alert against security threats and illegal human trafficking, we must ensure that genuine asylum seekers are treated with dignity and have access to legal protection. Let us prove that our Alliance can secure its borders without losing its humanity.  
+Thank you, and I yield my time back to the Chair.

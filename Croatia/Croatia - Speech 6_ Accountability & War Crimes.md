@@ -1,0 +1,6 @@
+Honorable Chair, Distinguished Delegates,  
+The delegation of Croatia strongly believes that protecting the victims of war is not only about providing immediate shelter and food. It is also about seeking justice and ensuring full accountability for those who violate international law.  
+During the 1990s, Croatia experienced the devastating pain of war and the temporary occupation of our territory. We know firsthand that a lasting, just peace is impossible without holding perpetrators accountable. Today, we witness unacceptable Russian attacks on critical civilian infrastructure, schools, and hospitals in Ukraine. Under International Humanitarian Law, these are not mistakes; they are war crimes.  
+Therefore, Croatia proposes that NATO should share its advanced monitoring and satellite data to help international courts document these violations and secure evidence. Additionally, we strongly support initiatives like the "Register of Damage" to ensure that victims receive compensation for what they have lost.  
+Let us send a clear message: those who target innocent lives will be held responsible.  
+Thank you, and I yield my time back to the Chair.

@@ -1,0 +1,7 @@
+Honorable Chair, Distinguished Delegates,  
+The delegation of Albania wishes to address the crucial topic of technology and innovation in protecting civilians.  
+In the 21st century, modern warfare is highly technological. Therefore, our humanitarian defense strategies must be equally advanced. To answer the second question of our study guide, Albania believes that NATO must leverage emerging technologies to create a digital shield for war-affected populations.  
+First, we suggest the use of commercial satellite imagery and real-time drone monitoring. By analyzing high-resolution data, NATO can help humanitarian groups identify safe evacuation routes, detect damaged roads, and prevent civilians from entering active conflict zones.  
+Second, we must support the development of smart logistics. Artificial intelligence can be used to predict refugee movements and coordinate the distribution of food, clean water, and medical supplies to border areas more efficiently.  
+Technology must not only be used to win wars, but also to protect the innocent. Albania calls on all member states to share technological resources for humanitarian purposes.  
+Thank you, and I yield my time back to the Chair.

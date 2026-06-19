@@ -1,0 +1,6 @@
+Honorable Chair, Distinguished Delegates,  
+The delegation of Croatia strongly believes that protecting the victims of this conflict is a massive challenge that no single organization can solve alone.  
+While NATO provides critical security assessments and logistical support, other actors have unique humanitarian expertise. From our own historical experience in postwar reconstruction, Croatia knows that international aid is only successful when it is coordinated and efficient, avoiding any duplication of effort.  
+Therefore, Croatia proposes that NATO should establish a "Joint Humanitarian Data Sharing Hub." Under this framework, NATO can securely share transport route assessments with the European Union, the United Nations, and NGOs like the Red Cross.  
+This cooperative approach ensures that NATO secures the pathways while civilian agencies efficiently distribute food, medicine, and shelter. Let us build stronger bridges between international organizations to create a more resilient safety net for innocent civilians.  
+Thank you, and I yield my time back to the Chair.

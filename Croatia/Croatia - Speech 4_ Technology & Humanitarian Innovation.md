@@ -1,0 +1,6 @@
+Honorable Chair, Distinguished Delegates,  
+The delegation of Croatia believes that in the 21st century, protecting civilian lives requires modern, technological solutions. To answer the second question of our study guide, we must leverage new technologies to create a digital shield for war-affected populations.  
+First, Croatia proposes the use of advanced satellite imagery and real-time drone monitoring. By sharing high-resolution data, NATO can help humanitarian organizations identify safe evacuation routes, detect damaged infrastructure, and steer civilians away from active combat zones.  
+Second, we should support smart logistics. Using basic artificial intelligence and digital tracking, we can better predict refugee movements and coordinate the distribution of food, water, and emergency medical supplies at border areas.  
+Croatia has historically used technology to map and clear dangerous areas after conflicts. We know that technology can save lives when shared effectively. Let us use our technological power not just for military defense, but for humanitarian action.  
+Thank you, and I yield my time back to the Chair.

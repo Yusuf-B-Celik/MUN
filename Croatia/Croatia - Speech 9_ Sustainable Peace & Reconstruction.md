@@ -1,0 +1,8 @@
+Honorable Chair, Distinguished Delegates,  
+As we reach the final stages of our debate, the delegation of Croatia believes we must look beyond the immediate crisis. Protecting the victims of this war is not just about keeping them alive today; it is about securing their tomorrow.  
+From our own history of postwar reconstruction in the 1990s, Croatia knows that the end of military operations is only the beginning of a long road to recovery. Even when the weapons fall silent, the invisible scars of war remain.  
+Therefore, Croatia urges this Council to focus on two critical long-term areas in our final resolution:  
+First, we must prioritize humanitarian demining. Today, millions of landmines contaminate Ukrainian fields, posing a daily threat to returning families. Following our war of independence, Croatia faced the same deadly threat. Over the last decades, we have developed world-class expertise and technology in demining. Croatia is fully ready to share this specialized knowledge and train Ukrainian teams to make their lands safe again.  
+Second, we must support mental health and psychological recovery. The trauma of war affects generations, especially children. Croatia successfully built programs to heal these psychological wounds, and we believe NATO, in cooperation with civilian partners, must establish similar rehabilitation initiatives.  
+Distinguished delegates, let our final resolution reflect not just our military resolve, but our long-term commitment to human life. Let us help Ukraine build a future where children can walk safely and dream without fear.  
+Thank you, and I yield my time back to the Chair.

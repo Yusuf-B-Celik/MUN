@@ -1,0 +1,6 @@
+Honorable Chair, Distinguished Delegates,  
+The delegation of Albania is deeply honored to address the North Atlantic Council today.  
+As a committed NATO member, Albania strongly condemns Russia’s unprovoked and brutal aggression in Ukraine. This war is not only a violation of international law but also a direct attack on basic human rights and civilian lives.  
+Albania believe that the security of our Alliance is indivisible. Although we are a small nation, we stand fully in solidarity with Ukraine. From our perspective on the Southern Flank, we must emphasize that this conflict directly impacts the Mediterranean security environment, maritime trade, and irregular migration flows. Therefore, we must apply the "360-degree security" approach. We cannot separate the security of the East from the security of the South.  
+Dear delegates, protecting the victims of this war is our collective moral duty. Albania is ready to cooperate with all of you to find active, realistic solutions for humanitarian aid and civilian safety.  
+Thank you, and I yield my time back to the Chair.
