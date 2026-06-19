@@ -48,7 +48,7 @@ export const generalCultureData: Record<string, CountryCulture> = {
     ]
   },
   croatia: {
-    id: "crocity",
+    id: "croatia",
     name: "Hırvatistan",
     nativeName: "Hrvatska",
     capital: "Zagreb",
